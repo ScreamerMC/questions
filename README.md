@@ -1,0 +1,1 @@
+Thank you for considering me for the Junior Backend Developer position at EVOLVE and for taking the time to review this exercise. I appreciate the opportunity to learn more about the role and your team.
